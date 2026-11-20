@@ -1,1 +1,1 @@
-# privacy-policy
+# privacy policy for M/S
