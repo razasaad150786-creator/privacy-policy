@@ -19,4 +19,4 @@ We disclose information to respond to subpoenas, court orders and other legal pr
 7.    Changes to the Privacy Policy
 M/S REAL ESTATE SERVICE may, in its sole discretion, change this Privacy Policy from time to time, any and all changes will be reflected here and the date new versions are posted will be stated at the top of this Privacy Policy, so please review it periodically.
 8.    Contact us
-If you have any suggestions, feedback or requests
+If you have any suggestions, feedback or requests, email us at razasaad150786@gmail.com
